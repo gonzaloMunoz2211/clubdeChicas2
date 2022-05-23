@@ -1,1 +1,1 @@
-Bienvenides al CDC
+Bienvenidos al CDC
